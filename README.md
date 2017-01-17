@@ -1,1 +1,0 @@
-mama e (.promqna) qka
