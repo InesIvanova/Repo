@@ -1,1 +1,1 @@
-mama
+mama e (.promqna) qka
